@@ -1,7 +1,7 @@
 # howtogetgirlspart2baby
 s/o emp7 ça bouge pas
 
-<br> Étape  7 : Tout d'abord garder en tête que vous êtes un emp7 , ensuite qu’il s’agisse d’une pute ou non, une femme reste une femme.
+<br> Étape  7 : Tout d'abord garder en tête que vous êtes un emp7 , ensuite qu’il s’agisse d’une e-girl ou non, une femme reste une femme.
 
 <br> Étape  8 : Chaque fille réagit différemment en fonction des techniques de séduction MAIS, encore une fois n'oubliez pas que vous êtes un hacker et qu'aucune e-girl ne vous résiste :sunglasses:
 
