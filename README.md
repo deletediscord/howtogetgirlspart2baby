@@ -17,3 +17,5 @@ s/o emp7 ça bouge pas
 <br> Etape 13 : Quelques petites disquettes rien que pour vous les frères : " tu serais pas https ? parce-que sans toi je suis :// " ,   " Tu serais pas en (a+b)² par hasard ? Parce que t'es remarquable " , après demerdez vous bordel 
 
 <br> Etape 14 : Capitalisez sur les points communs , elle aime les débiteurs ?  Toi aussi , elle aimes les zizis ? désormais tu aimes les zizis aussi t'as capté. 
+
+<br> Voilà tout simplement la suite de mon  tuto S.E, j'espère que vous l'aurez apprécié suite soon go brr 
