@@ -9,7 +9,7 @@ s/o emp7 ça bouge pas
 
 <br> Etape 10 : Un talent ? Tout le monde en a un et comme le proverbe chinois le dit : - Sois bon en informatique et tu possèderas tout les e-culs discordien 
 
-<br> Etape 11 : Renforcez votre confiance en vous-même , faite des ctf tout les jours afin de l'impressionner en e-date sur un vocal " Duo :verredevin: "
+<br> Etape 11 : Renforcez votre confiance en vous-même , faite des ctf tout les jours afin de l'impressionner en e-date sur un vocal " Duo :verredevin:"
 
 
 <br> Etape 12 : Osez la technique franche et directe , exemple " Hey babygirl , moyen qu'tu m'send ton e-cul dans mes e-dms " ( Derrière votre écran , ayez une tête de lover , toucher vous le menton en vous touchant les lèvres et en plissant les yeux) 
